@@ -1,0 +1,11 @@
+# Sequelitis
+With the recent home release of the last episode of Star Wars sequel trilogy, as well as the final entry in the so-called Skywalker Saga, I wanted to articulate my feelings the state of the brand at large. 
+
+After the first Star Wars movie since Disney's acquisition of Lucasfilm was released, I've had a sense of doubt the direction (or lack thereof) of the sequel trilogy. I had hoped that, over the course of three episodes, the latest editions to the main Star Wars narrative would have born fruit. Unfortunately, with the release of *The Rise of Skywalker*, I can say that wasn't the case for me. If I had to use a phrase to describe it, it would be "missed opportunity."
+
+## Preface
+I want to preface this by saying that I am deeply invested in Star Wars both as a cultural icon, and as a fictional universe with rich lore and characters that have been established over more than 40 years. That said, I didn't have irrational expectations of fan service that this new trilogy should somehow be a rehash or adaptation of the old extended universe. Frankly, for each good thing that came out of the EU, there was at least two bad things that did as well (and that's being generous). 
+
+That doesn't mean that I didn't have expectations about storytelling in the universe itself. In any piece of fiction that is to be sufficiently expansive, with side stories and a timeline spanning generations, new entries need to get more than just the look and feel right. Internal consistency within a fictional universe is hugely important, but criticizing works in this way is often shot down as being pedantic. 
+
+However, new fiction that doesn't mind the precedents and norms established previously deflates the stakes and causes every moment to feel like a plot device rather than a plausible occurrence within a larger experience. It also just makes everything feel less cohesive, leading to reduced immersion and suspension of disbelief. Stories told in these universes have the burden of being both a competent narrative while also juggling the baggage and expectations of telling a story in an established settings. This a throughline that permeates a lot of my gripes with the sequel trilogy.
